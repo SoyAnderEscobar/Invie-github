@@ -1,2 +1,2 @@
 # Invie-github
-Aqui encontraras las mejores guitarras Invie-cibles
+Aqui encontraras las mejores guitarras Invie-sibles
